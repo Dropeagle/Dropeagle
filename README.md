@@ -30,4 +30,4 @@ I love exploring new technologies, gamification, and building solutions with **s
 
 ---
 
-*“Building technology that matters, one line of code at a time.”*
+*“The two most important days in your life are the day you are born and the day you find out why.”*
