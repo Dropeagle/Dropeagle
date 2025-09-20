@@ -26,7 +26,7 @@ I love exploring new technologies, gamification, and building solutions with **s
 ## 📫 Connect with me
 
 - Email: [contato.pedroafv@gmail.com](mailto:contato.pedroafv@gmail.com)  
-- LinkedIn: [Pedro Aguiar](https://www.linkedin.com/in/pedroafv))  
+- LinkedIn: [Pedro Aguiar](https://www.linkedin.com/in/pedroafv)  
 
 ---
 
